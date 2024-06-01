@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jibran32
 - 👀 I’m interested in Development
-- 🌱 I’m graduated this year
+- 🌱 I’m graduated in 2023
 - 💞️ I’m looking to collaborate on skills
 - 📫 How to reach me WA # +923489366944
 
